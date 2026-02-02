@@ -1,1 +1,1 @@
-Included labs, assignments. Regularly Updating
+Included labs, assignments. 
