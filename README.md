@@ -1,1 +1,1 @@
-Included labs, assignments. xxxx
+Included labs, assignments. 
